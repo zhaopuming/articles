@@ -1,0 +1,7 @@
+There seems to be a lot of cynism in this thread. While I can see why, this process can actually be done well and do good. All harmful things such as batteries, wiring, fabrics, etc are removed to leave only the metal component where corals can grow. It helps re-establish fish populations that were extinct to an area and can also help with coastal erosion because the reef acts as a barrier to slow down and reduce the force of waves on the coast. It's been done with cinderblocks, sculptures, planes, trains, tires, but mostly decommissioned ships. Often done by or with the help of the military with decommissioned military ships (US and Australia especially for ships).
+
+Tires have been the worst and mostly don't happen anymore because the tires can't be properly secured and would be dragged away by the current, destroying the corals trying to grow on them and destroying their surroundings as well by crashing into it. The Osborne Reef is the biggest fail for tires.
+
+And no this isn't just a simpler way to dump waste. This process is probably more expensive and complex then to just scrap them for metal.
+
+原文链接：https://www.reddit.com/r/interestingasfuck/comments/ap0yrj/over_2500_retired_mta_subway_cars_have_been/
